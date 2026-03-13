@@ -9,8 +9,6 @@
 - 📫 How to reach me : instagram @95algifari facebook @Imam Al Gifari
 - 😄 Pronouns: He
 
-- ⚡ Fun fact: in real life i'm like Sportgames like running, Swimming and judo. Beside thats i have another hobby like drawing and Foreign language learning primarily English.
-
 <!---
 95algfri/95algfri is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
